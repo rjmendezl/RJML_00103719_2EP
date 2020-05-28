@@ -1,0 +1,1 @@
+https://trello.com/b/HRL1NcPR/parcial-02
